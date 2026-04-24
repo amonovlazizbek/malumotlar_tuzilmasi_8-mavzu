@@ -1,0 +1,1 @@
+# malumotlar_tuzilmasi_8-mavzu
